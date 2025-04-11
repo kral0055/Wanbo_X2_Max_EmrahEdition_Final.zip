@@ -1,1 +1,1 @@
-# Wanbo_X2_Max_EmrahEdition_Final.zip
+dosya
